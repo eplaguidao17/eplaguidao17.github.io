@@ -1,3 +1,3 @@
 # eplaguidao17.github.io
 Ethan Laguidao
-### ![jjk](https://static.wikia.nocookie.net/jujutsu-kaisen/images/e/e0/Jujutsu_Kaisen_Cursed_Clash_Key_Visual.png/revision/latest/scale-to-width-down/350?cb=20230702024226)
+### ![csm](https://www.hindustantimes.com/ht-img/img/2023/08/04/550x309/chainsaw-man-vol-1-9781974709939_xlg_1678112877592_1691173377220.jpg)
